@@ -4,7 +4,7 @@
 
 ### 🚀 About Me
 
-- 🏢 Currently working as **AI Product Manager** at Baidu
+- 🏢 Currently working as **AI Product Manager** 
 - 📝 Writing about AI tools and product strategy on [小红书 @乌西迪西](https://www.xiaohongshu.com/user/profile/61ca9e51000000001000693a)
 - 🌍 Solo traveler, visited 10+ countries
 - ☕ Coffee enthusiast & Free diver
@@ -29,7 +29,7 @@
 ### 📫 Connect with Me
 
 - 📧 Email: 793414751@qq.com
-- X/Titter: babymia52011314
+- X/Twitter: babymia52011314
 - 📱 [小红书](https://www.xiaohongshu.com/user/profile/61ca9e51000000001000693a)
 
 ---
