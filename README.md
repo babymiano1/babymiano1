@@ -29,7 +29,7 @@
 ### 📫 Connect with Me
 
 - 📧 Email: 793414751@qq.com
-- 📱 Phone: 18502885361
+- X/Titter: babymia52011314
 - 📱 [小红书](https://www.xiaohongshu.com/user/profile/61ca9e51000000001000693a)
 
 ---
